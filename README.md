@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Izzulhaziq06
 - 👀 I’m interested in Science Technology
-- 🌱 I’m currently learning Web Deweloper
+- 🌱 I’m currently learning Mechatronic Engineering
 - 💞️ I’m looking to collaborate on ...?
 - 📫 How to reach me, in media social.
 
